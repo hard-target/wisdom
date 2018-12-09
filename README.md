@@ -1,14 +1,13 @@
 
 
 
-# Do we  “really”  know about ourselves?        May not!!
+# Do we  “really”  know about ourselves? May not!!
 
 Most of us  ignore  the things, that are available  ‘free’  to us!
 
 We don’t attach much importance to them and take them “light” (most of the times)!
 
-We all  have heard:  
-‘Familiarity breeds contempt’.
+We all  have heard:  ‘Familiarity breeds contempt’.
 
 How many of us feel comfortable to ‘receive’  (genuine) feedback (about  ourselves) from our own  family members?  
 
@@ -16,7 +15,7 @@ At work, we all are always ready to give (passionate) ‘lectures’  about the 
 
 Do we ‘genuinely’  know how good we ourselves are, on such aspects?  
 
-Our  ‘bosses’ (at work) won’t always share with us (all) our Improvement Areas, in detail.  Even when shared, much of it  is sugar-coated!   We usually end such discussions (most of the time) thinking that we are broadly  ‘fine’ / ‘OK’.           In reality, such discussions may not reflect our true  ‘X-ray’.  
+Our  ‘bosses’ (at work) won’t always share with us (all) our Improvement Areas, in detail.  Even when shared, much of it  is sugar-coated!   We usually end such discussions (most of the time) thinking that we are broadly  ‘fine’ / ‘OK’.  In reality, such discussions may not reflect our true  ‘X-ray’.  
 
 By creating a pleasant environment at ‘home’, such aspects can be openly discussed, in a mutually beneficial manner for all members of the family. Parents, Spouse and also our children (where applicable) know (for sure) what we  ‘really’  are!
 
@@ -305,8 +304,8 @@ I conclude this by sharing the wonderful formula proposed by monk Gaur Gopal Das
      NO:    Then, why ‘worry’?             
 
      YES  (I have a problem):
-
-         👉Is there something that ‘you’  can do about it?
+     
+     👉Is there something that ‘you’  can do about it?
 
           NO:  Then, why  ‘worry’?
 
@@ -429,8 +428,7 @@ PS:
 
 2.  The anger of our bosses would drastically reduce within a few minutes of hearing the escalation from us, since the action moves to ‘resolving’ the issue on hand.(everyone would then be a part of the solution).
 
-# Let’s  live  a  Heavenly
-“Open Book”  life!   😇😄
+# Let’s  live  a  Heavenly “Open Book”  life!   😇😄
 
 Why do we need to   ‘hide’ anything  from  our  Family, (close)  Friends and  Team members?
 
